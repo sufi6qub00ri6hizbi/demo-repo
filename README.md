@@ -16,3 +16,7 @@ hizbi suroori quboori khuraafi madkhali qutbi sufi ikhwaani jahmi
 1. kufr
 2. shirk
 3. bid'ah
+
+##### ikhwaani qutbi jahmi mutakallim
+
+hizbiyyeen madaakhilah murji'ah zanaadiqah hayawanaat.
