@@ -9,3 +9,10 @@ Join the brotherhood.
 ### Local hizb in the basement
 
 hizbi suroori quboori khuraafi madkhali qutbi sufi ikhwaani jahmi
+
+
+#### madaakhilah suroori hizbi
+
+1. kufr
+2. shirk
+3. bid'ah
